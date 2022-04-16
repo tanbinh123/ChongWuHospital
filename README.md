@@ -3,7 +3,7 @@
 
 演示视频链接：https://www.bilibili.com/video/BV1sY4y1q7cG/
 
-详询 微信：egvh56ufy7hh ，承接商业项目和毕设
+详询 微信：egvh56ufy7hh 钉钉：chengxuyuandabo，承接商业项目和毕设
 
 1.开发环境
 
